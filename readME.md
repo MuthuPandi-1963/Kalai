@@ -1,0 +1,1 @@
+class 2 : https://chatgpt.com/share/68427bcd-0158-800c-a40b-61fc8585dbb2
